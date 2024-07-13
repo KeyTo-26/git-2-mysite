@@ -1,5 +1,4 @@
-![Мой Сайт](https://i.pinimg.com/474x/04/41/96/0441962639797420f1219d159c77c916.jpg)
-
+![Мой Сайт](https://w7.pngwing.com/pngs/812/32/png-transparent-squirrel-squirrel-mammal-animals-cat-like-mammal-thumbnail.png)
 # KeyTo
 
 ## Обо мне
