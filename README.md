@@ -1,4 +1,4 @@
-![Мой Сайт](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.freepng.ru%2Fpng-c14jgv%2F&psig=AOvVaw3zfhD83a20HfTflLu_GbEc&ust=1720964481839000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCIjNi8eSpIcDFQAAAAAdAAAAABAE)
+![Мой Сайт](https://i.pinimg.com/474x/04/41/96/0441962639797420f1219d159c77c916.jpg)
 
 # KeyTo
 
